@@ -6,4 +6,4 @@ We can’t insure success, but we can deserve it.
 Điểm yếu khi ta còn trẻ là dễ mắc những sai lầm trong cuộc sống. Nhưng bù lại, chúng ta có sức sống mạnh mẽ. Dễ dàng hỏi phục và vươn lên.
 Hãy nghĩ tới quả ngọt từ sự cố gắng hôm nay.
 With all good wishes for a brilliant and happy Christmas season. Hope things are going all right with you.
-Giữ tâm bình an 
+Giữ tâm bình an .
